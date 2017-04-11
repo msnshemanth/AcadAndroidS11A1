@@ -1,1 +1,0 @@
-# AcadAndroidS11A1
